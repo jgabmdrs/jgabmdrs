@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jgabmdrs
 - 👀 I’m interested in SPORT CLUB CORINTHIANS PAULISTA
-- 🌱 I’m currently learning basic programations, like html; css and python.
+- 🌱 I’m currently learning basic programations, like eaglercraft 1.8.8
 - 💞️ I’m looking to collaborate in torcer pro TIMÃO e marcar presença em Itaquera (Se possível)
 - 📫 How to reach me: ig: @jgabmdrs
 
